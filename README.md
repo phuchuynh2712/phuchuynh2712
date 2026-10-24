@@ -21,4 +21,4 @@ I design and build mobile apps for fintech, banking and healthcare teams. I have
 
 [Portfolio](https://phuchuynh2712.github.io/my-portfolio/) · [LinkedIn](https://www.linkedin.com/in/phuc-huynh-051a99437/) · huynhhuuphuc1293@gmail.com
 
-Open to new roles, remote or in Vietnam.
+Open to new roles. Based in Ho Chi Minh City (UTC+7), remote preferred, open to on-site in Vietnam.
